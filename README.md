@@ -5,4 +5,5 @@ Iris Liu &amp; Michael Irvine
 
 *now Iris makes one too
 
-*wooo simultaneous changes wooo
+*Simultaneous change wooo
+
